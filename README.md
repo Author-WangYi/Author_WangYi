@@ -10,4 +10,4 @@
 
 绘画作品项目下载地址：https://pan.quark.cn/s/443f39e8b301
 
-视频音频素材项目下载地址：https://pan.quark.cn/s/fa97e1f1eb90
+其它素材项目下载地址：https://pan.quark.cn/s/fa97e1f1eb90
